@@ -34,9 +34,13 @@ Select: Government Supported Private Investigator and Ghost Inmate
 
 --------------------------------------------------------------------------
 
-4. 
+4. LITTLE NEST EGG
 
-Select: Relentless Bounty Hunter and Presumed Dead hahahahahahahaha
+Select: Relentless Bounty Hunter and Presumed Dead
 
 	a. Plow your tank into the train and jump on top.
-	b.
+	b. Use your Agility to dodge the bullets and get close enough to the gunner to jump on his head.
+	c. Use the mirror to reflect the laser back at Mr. Macbeth and win the battle. 
+	d. Take the money cart away by sea and stow it behind some foilage.
+
+---------------------------------------------------------------------------
