@@ -1,7 +1,7 @@
 GROUP MEMBER NAMES:
 ===================
 
-Eli Barela
-Anthony Underwood
+Eli Barela (Kurutte5)
+Anthony Underwood (OIvar)
 "First Name Last Name"
 
