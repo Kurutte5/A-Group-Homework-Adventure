@@ -36,7 +36,7 @@ Select: Government Supported Private Investigator and Ghost Inmate
 
 4. 
 
-Select: Relentless Bounty Hunter and Presumed Dead
+Select: Relentless Bounty Hunter and Presumed Dead hahahahahahahaha
 
 	a. Plow your tank into the train and jump on top.
 	b.
