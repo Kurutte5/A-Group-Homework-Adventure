@@ -32,4 +32,11 @@ Select: Government Supported Private Investigator and Ghost Inmate
 	c. Use the free transform tool to avoid getting hit by the tunnel.
 	d. Use the SuccPak to steal all the treasure from the Toppats and drive away in style 
 
----------------------------------------------------------------------------
+--------------------------------------------------------------------------
+
+4. 
+
+Select: Relentless Bounty Hunter and Presumed Dead
+
+	a. Plow your tank into the train and jump on top.
+	b.
