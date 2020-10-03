@@ -44,3 +44,15 @@ Select: Relentless Bounty Hunter and Presumed Dead
 	d. Take the money cart away by sea and stow it behind some foilage.
 
 ---------------------------------------------------------------------------
+
+5. Jewel Baron
+
+Select: Pure-Blooded Thief and Ghost Inmate
+
+	a. Go into mosquito mode so that you don't get destroyed by the lasers shooting at you.
+	b. Break the teleporter to get into the vault on the ship.
+	c. Press the open button in order to get the gem out of it's container. 
+	d. Yell at the Toppats so you can break the window and escape out in space.
+	e. Use the grow and shrink chip to grow the emerald and reflect the laser back at the ship, cutting it in half. 
+
+---------------------------------------------------------------------------
